@@ -27,6 +27,10 @@ https://www.youtube.com/watch?v=Z1HFb2WLm0M&list=PLLALQuK1NDrgn4qegk_1Bcrs2l5ygh
 
 https://www.youtube.com/watch?v=zbpsVlELdrA
 
+10. Kak Dela (как дела) - How are you ?
+
+11. 
+
 
 
 # References :
