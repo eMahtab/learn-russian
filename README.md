@@ -15,3 +15,5 @@
 6. Pa-zah-loos-tah (пожалуйста)- You are welcome/Please
 
 7. eez-vee-nee-tye (извините) - Sorry
+
+8. me-nya za-voot (меня зовут) - My name is
