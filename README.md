@@ -1,17 +1,17 @@
 # Learn Russian
 
-Privet (Привет) - Hi
+1. Privet (Привет) - Hi
 
-Zdravstvuyte (Здравствуйте) – Hello
+2. Zdravstvuyte (Здравствуйте) – Hello
 
 
 
-Da (да) - Yes
+3. Da (да) - Yes
 
-Nyet (нет) - No
+4. Nyet (нет) - No
 
-Spa-see-ba (Спасибо) - Thank you
+5. Spa-see-ba (Спасибо) - Thank you
 
-Pa-zah-loos-tah (пожалуйста)- You are welcome/Please
+6. Pa-zah-loos-tah (пожалуйста)- You are welcome/Please
 
-eez-vee-nee-tye (извините) - Sorry
+7. eez-vee-nee-tye (извините) - Sorry
