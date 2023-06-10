@@ -9,3 +9,5 @@ Zdravstvuyte (Здравствуйте) – Hello
 Da (да) - Yes
 
 Nyet (нет) - No
+
+Spa-see-ba (Спасибо) - Thank you
