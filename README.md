@@ -31,7 +31,7 @@ https://www.youtube.com/watch?v=zbpsVlELdrA
 
 11. ha-ra-sho (хорошо) - Good/fine
 
-
+12. o-chen-pri-yat-na - Nice to meet you.
 
 # References :
 Your first 25 phrases : https://www.youtube.com/watch?v=QhhI0dyqbpE
